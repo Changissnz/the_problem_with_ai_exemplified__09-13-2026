@@ -30,7 +30,7 @@ are cheering for their favorite race car athlete superstar, the race is close as
 
 ----------------------------------------------------------------------- 
 
-Now, I will share some writing from people in the computing industry, as well as **who can forget, it's your fave fave** the Mainstream Media. 
+Now, I will share some writing from people in the computing industry, as well as <u>**who can forget, it's your fave fave**</u> the Mainstream Media. 
 
 ![image info](Screenshot%202026-09-13%20001008.png)
 
