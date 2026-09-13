@@ -140,7 +140,9 @@ The semiconductor industry, as I mentioned in the beginning of this article. It'
 it and trade cancellations and multinational trade agreements, corporate logos and all, Chaebols, Zaibatsu... 
 Some people are definitely getting cut out. Maybe it is a wise thing to not pity the man who was told "you're just a chink!" since he has a greater quality of 
 life in his country now AND he probably would not give a f*** about it as an insult. Because he's a greater person. Because he's just too culturally prideful. Who 
-knows who cares? 
+knows who cares? Oh, and he can probably get semiconductors for much better price and quality than Vietnamese. If Vietnam had learned anything meaningful from their 
+civil war, they would have taken chosen the path of South Korea, the country that headquarters Samsung. Instead, it went through famines because its Communist victor 
+fathers who grew into old age continued running the country, as a gerontocracy. 
 
 Scientific improvements and the marketing/sensationalism are worlds apart. If a product is scaled 1000s of times above the norm, and does not improve, then the 
 product is a gargantuan waste. The A.I. industry's marketing growth critically depends on it making measurable gains. At the end of the day though, it is terribly 
