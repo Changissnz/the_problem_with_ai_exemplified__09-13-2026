@@ -136,8 +136,8 @@ have planned, foreign monopolies, trade guilds, empires and such...it's not the 
 Xiaoping economic reforms. It's not the merchant. It's not the builder. It's the guy giving the orders, and the people flying the national flags, as well as some 
 cultural mannerisms that are just not compatible in the long run. 
 
-The semiconductor industry, as I mentioned in the beginning of this article. It's like another kind of oil, except the massive amount of information and trade 
-cancellations and multinational trade agreements, corporate logos and all, Chaebols, Zaibatsu... 
+The semiconductor industry, as I mentioned in the beginning of this article. It's like another kind of oil, except the massive amount of shady disinformation surrounding 
+it and trade cancellations and multinational trade agreements, corporate logos and all, Chaebols, Zaibatsu... 
 Some people are definitely getting cut out. Maybe it is a wise thing to not pity the man who was told "you're just a chink!" since he has a greater quality of 
 life in his country now AND he probably would not give a f*** about it as an insult. Because he's a greater person. Because he's just too culturally prideful. Who 
 knows who cares? 
