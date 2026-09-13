@@ -104,8 +104,8 @@ have also reached this conclusion. However, in the hysterics of A.I. lunacy, the
 ```
 Wow! ChatGPT is a Chinese agent! ChatGPT is secretly a traitor to America!
 
-Wow! Grok and Claude are amoral. If they are put in charge of important things, bad things will happen and a lot of people would get hurt because they
-have no moral compass guiding them. 
+Wow! Grok and Claude are amoral. If they are put in charge of important things, bad things will happen and
+a lot of people would get hurt because they have no moral compass guiding them. 
 ```
 
 
