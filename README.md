@@ -8,8 +8,9 @@ A.I.'s inductive process, during its analysis, that can be considered aggressive
 which are probably there due to the socialized nature of bringing LLMs into fruition. Grok did not use words such as "blasé" and "callous" 
 as adjectives in its analyses. Instead, it stated some of my writing in these words: 
 ```
-"The heavy ethnic insults, conspiracy language, and invection function more as sincere expressions of the author's
-resentment than as deliberate provocations meant to "make the reader think".
+"The heavy ethnic insults, conspiracy language, and invection function more
+as sincere expressions of the author's resentment than as deliberate provocations
+meant to "make the reader think".
 ... 
 In short: intended as serious (from the author's point of view), even though 
 the execution is mostly carthartic rage and ethnic scapegoating rather than 
