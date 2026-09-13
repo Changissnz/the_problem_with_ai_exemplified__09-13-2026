@@ -125,5 +125,29 @@ how anyone can sensationalize the response Grok gave as imminent threat to human
 
 ------------------------------------------------------------------------------------------- 
 
+"You're just a chink!" 
 
+I quoted that in this [article](https://github.com/Changissnz/my_thoughts_on_AI__09-09-2026). Grok, the properly trained A.I. that it is, used that as part 
+of its claim that I'm BLAH BLAH BLAH saying bad things, therefore must be BAD person. 
+
+This quote provides a great case for a serious underlying problem in this economic strife surrounding emerging ideas of wealth and such. And that is the 
+cheapness. "You're just a ANYTHING!" is meant to say you're not really on top of the world. You are actually subject. The strange economics that foreign nations 
+have planned, foreign monopolies, trade guilds, empires and such...it's not the worst insult. China's standard of living has gone up considerably since the Den 
+Xiaoping economic reforms. It's not the merchant. It's not the builder. It's the guy giving the orders, and the people flying the national flags, as well as some 
+cultural mannerisms that are just not compatible in the long run. 
+
+The semiconductor industry, as I mentioned in the beginning of this article. It's like another kind of oil, except the massive amount of information and trade 
+cancellations and multinational trade agreements, corporate logos and all, Chaebols, Zaibatsu... 
+Some people are definitely getting cut out. Maybe it is a wise thing to not pity the man who was told "you're just a chink!" since he has a greater quality of 
+life in his country now AND he probably would not give a f*** about it as an insult. Because he's a greater person. Because he's just too culturally prideful. Who 
+knows who cares? 
+
+Scientific improvements and the marketing/sensationalism are worlds apart. If a product is scaled 1000s of times above the norm, and does not improve, then the 
+product is a gargantuan waste. The A.I. industry's marketing growth critically depends on it making measurable gains. At the end of the day though, it is terribly 
+competitive, and the more serious parts of A.I. development indeed fall under nation-state administration. Sometimes, it is not the statesmen but the gamblers. 
+
+And as I stated in this [article](https://github.com/Changissnz/the_problem_with_ai_exemplified__09-10-2026): 
+"Ethnicity does not matter from the beginning. Some people make it matter." 
+
+Now that is a good thought to ponder on. 
 
