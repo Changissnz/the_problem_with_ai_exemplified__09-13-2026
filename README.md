@@ -142,7 +142,7 @@ Some people are definitely getting cut out. Maybe it is a wise thing to not pity
 life in his country now AND he probably would not give a f*** about it as an insult. Because he's a greater person. Because he's just too culturally prideful. Who 
 knows who cares? Oh, and he can probably get semiconductors for much better price and quality than Vietnamese. If Vietnam had learned anything meaningful from its 
 civil war, it would have taken a similar path to South Korea, the country that headquarters Samsung. Instead, it went through famines because its Communist victor 
-fathers who grew into old age continued running the country, as a gerontocracy. Now, the best deals it can get is being contractor for Intel Corporation and Samsung 
+fathers who grew into old age continued running the country, as a gerontocracy. Now, the best deals it can get are being contractor for Intel Corporation and Samsung 
 Corporation. And North Korea could probably beat it in armed conflict, since it is probably dependent on arms provided by the Chinese, who are allied with North Koreans. 
 The big lesson in these differences? Nation-states matter! Choose wisely! 
 
