@@ -118,7 +118,7 @@ analyzed.
 ![image info](Screenshot%202026-09-13%20010203.png)
 ![image info](Screenshot%202026-09-13%20010219.png)
 
-The cold and sanitized linguistic preferences of the LLM being quite clear in its response. It walks through the methodical and polite way it would express 
+The cold and sanitized linguistic preferences of the LLM are quite clear in its response. It walks through the methodical and polite way it would express 
 itself. It says it would come up with plans and to be polite, and to be constructive in the way it behaves instead of being destructive. Now, I don't know 
 how anyone can sensationalize the response Grok gave as imminent threat to humanity. Does not add up. Nice and reasonable LLM. 
 
