@@ -70,7 +70,7 @@ that kinda proves why the technology industry has to resort to its ways that com
 Oh, and OpenAI is not having its IPO this year anymore. It looks like the hedge funds and private equity need to sort out some more numbers that they 
 pulled out of their a** before the big wedding day, to governments and the general public that will probably not give that much of a f*** anymore. 
 
-![image info](Screenshot%202026-09-13%20001743.png)
+![image info](Screenshot%202026-09-13%20003313.png)
 
 ------------------------------------------------------------------------
 ------------------------------------------------------------------------
