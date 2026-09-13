@@ -79,7 +79,7 @@ pulled out of their a** before the big wedding day, to governments and the gener
 ------------------------------------------------------------------------
 
 The A.I. trend is helping economies of the bureaucratic developed world go bankrupt. They're supposed to help some nations get out of the debt crises 
-that have been building up, in no small part to the Arabian Wars. Hopefully, if the world figuratively burns, something greater can emerge out of the 
+that have been building up, due in no small part to the Arabian Wars. Hopefully, if the world figuratively burns, something greater can emerge out of the 
 ashes. 
 
 ----------------------------------------------------------------------------------------
