@@ -21,7 +21,7 @@ There is clear contribution from psychology experts into the A.I. industry for t
 in terms of jealousy, envy, those sentiments. Obviously, orthodox interpretations such as those provided by Grok might miss the point entirely, since 
 it provides feedback like a clinician. 
 
-The media coverage of AI? A+ for Sensationalism. I have to say...the coverage of A.I. has beat everything I seen during the 1999/2000/2001 years, 
+The media coverage of A.I.? A+ for Sensationalism. I have to say...the coverage of A.I. has beat everything I seen during the 1999/2000/2001 years, 
 back when I was too young to care or understand. And the A.I. coverage is definitely multiples of times that the big news on "the Russians" about a decade 
 back, the Watergate 5.0/6.0/7.0 sensations throughout the two primary American political parties. This A.I. thing... big big cause for change or something, 
 as seen by the semiconductor chip shortage, and evident leverage by East Asian economies for their own welfare. Just a few days ago, I was reading about 
