@@ -144,7 +144,9 @@ knows who cares?
 
 Scientific improvements and the marketing/sensationalism are worlds apart. If a product is scaled 1000s of times above the norm, and does not improve, then the 
 product is a gargantuan waste. The A.I. industry's marketing growth critically depends on it making measurable gains. At the end of the day though, it is terribly 
-competitive, and the more serious parts of A.I. development indeed fall under nation-state administration. Sometimes, it is not the statesmen but the gamblers. 
+competitive, and the more serious parts of A.I. development indeed fall under nation-state administration. Sometimes, it is not the statesmen but the gamblers that 
+turn people off. And then their wrongs get rationalized as because they are part of these people, this group. Correlations. That's another thing that A.I. has been 
+amply trained to do. 
 
 And as I stated in this [article](https://github.com/Changissnz/the_problem_with_ai_exemplified__09-10-2026): 
 "Ethnicity does not matter from the beginning. Some people make it matter." 
