@@ -17,7 +17,7 @@ the execution is mostly carthartic rage and ethnic scapegoating rather than
 careful argument.
 ```
 
-There is clear contribution from psychology experts into the A.I. industry for the LLM to reach for these conclusions. It thinks of dissatisfaction 
+There is clear contribution from psychology experts in the A.I. industry for the LLM to reach for these conclusions. It thinks of dissatisfaction 
 in terms of jealousy, envy, those sentiments. Obviously, orthodox interpretations such as those provided by Grok might miss the point entirely, since 
 it provides feedback like a clinician. 
 
