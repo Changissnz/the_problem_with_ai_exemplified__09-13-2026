@@ -128,7 +128,7 @@ how anyone can sensationalize the response Grok gave as imminent threat to human
 "You're just a chink!" 
 
 I quoted that in this [article](https://github.com/Changissnz/my_thoughts_on_AI__09-09-2026). Grok, the properly trained A.I. that it is, used that as part 
-of its claim that I'm BLAH BLAH BLAH saying bad things, therefore must be BAD person. 
+of its claim that I'm BLAH BLAH BLAH saying bad things, therefore must be resentful (BAD person). 
 
 This quote provides a great case for a serious underlying problem in this economic strife surrounding emerging ideas of wealth and such. And that is the 
 cheapness. "You're just a ANYTHING!" is meant to say you're not really on top of the world. You are actually subject. The strange economics that foreign nations 
