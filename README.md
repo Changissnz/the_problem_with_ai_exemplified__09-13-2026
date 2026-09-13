@@ -36,7 +36,7 @@ Now, I will share some writing from people in the computing industry, as well as
 ![image info](Screenshot%202026-09-13%20001008.png)
 
 World famous haxxor. He can't contain his excitement at the A.I. bubble bursting. Before he admits his excitement, he talks about the recent report by 
-Anthropic on threat actors (militants, hostile nation-state agent, et cetera) using A.I. to aid them in developing a missile. 
+Anthropic on threat actors (militants, hostile nation-state agents, et cetera) using A.I. to aid them in developing a missile. 
 
 ------------------------------------------------------------------------ 
 
